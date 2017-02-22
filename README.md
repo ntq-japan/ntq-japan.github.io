@@ -1,1 +1,1 @@
-# ntqsolution.github.io
+# NTQ Solution JSC's blog

@@ -1,0 +1,1 @@
+# Welcome to NTQ Solution JSC's Blog!
