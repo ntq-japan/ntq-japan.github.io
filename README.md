@@ -1,0 +1,1 @@
+# ntqsolution.github.io
